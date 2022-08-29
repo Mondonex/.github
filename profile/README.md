@@ -1,1 +1,1 @@
-Nós conectamos pessoas com objetivos em comum e facilitamos a conquista de ativos de lazer através da economia compartilhada.
+Acreditamos que melhor que colecionar propriedades o importante é colecionar momentos e, por isso, unimos tecnologia à serviços inteligentes para que você possa aproveitar melhor o seu tempo com o que realmente importa.
